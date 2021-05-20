@@ -7,3 +7,22 @@ Add the chopped mushrooms and cook until they start to brown which will prob tak
 For the cashew sauce, add all the ingredients to a blender and blend all the sauce ingredients on high speed until very smooth.
 Drain and rinse the pasta, (keeping a mug of pasta water to help dilute the dish if needed) and put back in the pot. Add the sauce to cooked and drained pasta and cook for a couple of minutes until it thickens. Taste and season if need.
 Serve the pasta and sauce and top each dish with the cooked mushrooms, a few slices of the sliced chilli and some thyme/oregano leaves. Enjoy!
+
+INGREDIENTS
+ 
+300 g wholemeal pasta
+250 g mushrooms of choice – we like oyster/shitake/chestnut
+1 large red onion
+2 cloves of garlic
+200 ml veg stock
+3 tbsp tamari/soy sauce
+Creamy cashew sauce
+100 g roasted cashews
+500 ml alternative milk of choice
+juice of ½ lemon
+½ tsp salt
+¼ tsp ground black pepper
+1 tsp garlic powder
+Garnish
+1 fresh chilli – seeds removed
+3 sprigs of fresh oregano or thyme
